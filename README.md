@@ -1,7 +1,7 @@
 # Uma Receita de Panqueca Incrível
 Repositório criado para o Desafio da [DIO](https://www.dio.me) Sobre Git/Github. 
 
-## Neste repositório vou deixar uma receita muito fácio de fazer e bem saborosa. Bora lá?
+## Neste repositório vou deixar uma receita muito fácil de fazer e bem saborosa. Bora lá?
 
 ### Ingredientes
  - 3 Xícaras de farinha de trigo
