@@ -17,7 +17,7 @@ Em uma frigideira (Ou panquequeira) ante-aderente untada com azeite e já aqueci
 
 Faça o mesmo processo até que finalizar a mistura feita no liquidificador.
 
-Enrole as panquecas com o recheio desejado e coloque em um refratári. Polvilhe queijo ralado e leve ao forno para gratinar. 
+Enrole as panquecas com o recheio desejado e coloque em um refratário. Polvilhe queijo ralado e leve ao forno para gratinar. 
 
 Sirva quente!
 
